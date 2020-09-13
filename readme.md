@@ -1,0 +1,2 @@
+Personal Project for Jacob called Daily Sweet Nothings. 
+This websites goals is for others to sign up their friends/families with their numbers and have many different exercises or goals be texted to them on a continous basis
